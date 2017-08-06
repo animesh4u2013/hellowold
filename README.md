@@ -1,1 +1,1 @@
-# hellowold-What a new way to collaborate by slack
+# hellowold-What a new way to collaborate
